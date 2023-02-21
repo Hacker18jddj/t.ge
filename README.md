@@ -1,2 +1,2 @@
-# t.ge
+# www.t.ge/y.kjd/instagram.com
 Gghacker
